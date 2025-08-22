@@ -4,7 +4,7 @@ Hi, I'm Ryan!
 
 A Software Engineer.
 
-Now building software and maintaining warehouse data in Jatis Mobile. Based in Jakarta.
+Now working as freelance and going to take master degree for further education!
 
 Open to work.
 
