@@ -6,6 +6,8 @@ A Software Engineer.
 
 Now working as freelance and going to take master degree for further education!
 
+View my recent publication <a href="https://www.engineeringletters.com/issues_v33/issue_2/EL_33_2_21.pdf">here</a>!
+
 Open to work.
 
 ## 🌐 Socials:
